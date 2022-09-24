@@ -1,1 +1,5 @@
-# MikailBaran
+  #                                                          Hi 👋, I'm Mikail
+
+> #### I believe that business life is not only a means of earning money, but also an important factor in terms of personal development and social life. The most important experience I have had in the banking sector has been to analyze the customer from multiple perspectives. It was an important gain to know the customer very well and to make analyzes about him. According to many experts, the best way to get to know the person or people addressed is to collect **DATA** pertaining to him. This has proven to be an easy task for the service providers and an incredible time saver for the customer at the point of solving problems. I believe that it depends on the timely and efficient use of the **DATA** we have in order to produce fast solutions both in business life and socially. In addition to these, working with a team that believes in solid communication and success makes it feel more like an area where we socialize rather than a compulsory work shift. The continuous development of technology causes the habits we have in every sector to change, new adaptations to be gained and new experiences to be experienced. As someone who likes to use, examine and research technology, I enjoy it immensely.
+
+
